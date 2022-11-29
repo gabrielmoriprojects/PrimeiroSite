@@ -1,2 +1,3 @@
-# Site ainda sendo feito
-# Bruh
+# VANDALISMO
+# GVANDALISMO
+# HAHAHAHAHAHA
